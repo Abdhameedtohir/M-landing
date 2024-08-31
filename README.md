@@ -17,6 +17,9 @@ this blog track my growth, the things i"ve learned and how I'm leveraging them t
 
 ![image](https://github.com/user-attachments/assets/c3873716-876f-4fc9-a25a-40aa45fccf11)
 
+![image](https://github.com/user-attachments/assets/ee23bc73-6675-429f-85b4-9a8fd181ef51)
+
+
 
 
 
