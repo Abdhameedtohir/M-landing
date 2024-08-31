@@ -5,8 +5,6 @@ this blog track my growth, the things i"ve learned and how I'm leveraging them t
 this is also about blog that tracks my growth
 ![image](https://github.com/user-attachments/assets/444011ca-022c-4e99-9bdf-d39a7a5649ca)
 
-
-this blog tracks my improvement 
 ![image](https://github.com/user-attachments/assets/4d7e0e36-d285-45bd-9fae-8e3f41371c0b)
 
 ![image](https://github.com/user-attachments/assets/4ce7a873-ed30-4bf8-be0e-f44ece618685)
